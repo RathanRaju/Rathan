@@ -7,5 +7,5 @@ always current with the latest developments in the Data Science world.
 I pride myself ofoptimizing function and providing solutions that are intuitive user-friendly, adaptable and effective.
 
 
-# [LINKEDIN](https://www.linkedin.com/in/rathan-raju/)
-# [TWITTER](https://twitter.com/rathanraju)
+### [LINKEDIN](https://www.linkedin.com/in/rathan-raju/)
+### [TWITTER](https://twitter.com/rathanraju)
