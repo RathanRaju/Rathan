@@ -10,6 +10,4 @@ I pride myself of optimizing function and providing solutions that are intuitive
 
 
 
-### [LINKEDIN](https://www.linkedin.com/in/rathan-raju/)
-### [TWITTER](https://twitter.com/rathanraju)
-### [INSTAGRAM](https://www.instagram.com/rathan_raju/)
+#### [LINKEDIN](https://www.linkedin.com/in/rathan-raju/) #### [TWITTER](https://twitter.com/rathanraju) #### [INSTAGRAM](https://www.instagram.com/rathan_raju/)
