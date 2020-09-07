@@ -2,7 +2,7 @@
 
 ---
 
-#### [Email](rathanr51@hmail.com) [LINKEDIN](https://www.linkedin.com/in/rathan-raju/) | [TWITTER](https://twitter.com/rathanraju) | [INSTAGRAM](https://www.instagram.com/rathan_raju/) 
+#### [EMAIL](rathanr51@gmail.com) [LINKEDIN](https://www.linkedin.com/in/rathan-raju/) | [TWITTER](https://twitter.com/rathanraju) | [INSTAGRAM](https://www.instagram.com/rathan_raju/) 
 
 
 I am an innovative, creative thinker who is adept at coming up with real solutions that work for clients.
